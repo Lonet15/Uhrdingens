@@ -2,4 +2,4 @@
 analoge Uhr
 von marek
 
-i love hot daddys and stanislav
+i love hot daddys
